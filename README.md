@@ -2,7 +2,7 @@
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning IT
 - 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me email: hfergo888@gmail.com or contact me on: 0490359867.
+- 📫 How to reach me email: hfergo888@gmail.com.
 - Thanks
 
 <!---
