@@ -2,7 +2,7 @@
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning IT
 - 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me email: hfergo888@gmail.com.
+- 📫 How to reach me email: freestylebionicsofficial@gmail.com.
 - Thanks
 
 <!---
