@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Freestyle8bionics
-- 👀 I’m interested in programming
+- 👀 I’m interested in programming and web development
 - 🌱 I’m currently learning IT
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me email: freestylebionicsofficial@gmail.com.
